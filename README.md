@@ -1,0 +1,2 @@
+Junior Full-Stack Developer with hands-on experience gained through an intensive 240 GLH software development bootcamp. Strong foundation in Python, Django, Angular, and modern web technologies, with a passion for problem-solving and building scalable applications. 
+Actively seeking entry-level or graduate developer opportunities in the UK.Currently having valid work visa (no need of visa sponsorship).
